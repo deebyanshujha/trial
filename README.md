@@ -1,2 +1,7 @@
 # trial
 first repo 
+HI THERE,
+<br>
+I AM DEEBYANSHU JHA 
+<br>
+CURRENTLY STUDYING IN VIT VELLORE
